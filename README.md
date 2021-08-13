@@ -6,6 +6,8 @@ Arielle Slatus, Sina Salehi, Leora Fink
 
 Professor Jose Annunziato
 
+Northeastern University
+
 Spring 2021
 
 
